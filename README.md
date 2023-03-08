@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @RaphaelMadu
-- 👀 I’m a Penetration tester/ Hethical Hacker
-- 🌱 I’m currently helping businesses remotely and doing Bug-Bounty
+- 👀 I’m a Penetration Tester & Software Engineer
+- 🌱 I’m currently helping businesses remotely
 - 💞️ I’m available for any job opportunities 
 - 📫 You can reach me through 
-email:raphaelmadu09@gmail.com | grachart@protonmail.com
+email:blueded88@gmail.com | grachart@protonmail.com
 number:+234 9067370771
 
 <!---
