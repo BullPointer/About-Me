@@ -3,7 +3,7 @@
 - 🌱 I’m currently helping businesses remotely
 - 💞️ I’m available for any job opportunities 
 - 📫 You can reach me through 
-email:blueded88@gmail.com | grachart@protonmail.com
+email:blueded88@gmail.com | bullpointer0@gmail.com | grachart@protonmail.com
 number:+234 9067370771
 
 <!---
