@@ -4,7 +4,7 @@
 - 💞️ I’m available for any job opportunities 
 - 📫 You can reach me through 
 email:blueded88@gmail.com | bullpointer0@gmail.com | grachart@protonmail.com
-number:+234 9067370771
+number:+234 9067370771, +234 9061569485
 
 <!---
 Ralph/About-Me is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
